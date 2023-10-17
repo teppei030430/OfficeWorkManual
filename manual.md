@@ -1,4 +1,0 @@
-#こんにちは
-
-aaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaa
